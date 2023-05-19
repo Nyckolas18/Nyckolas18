@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil 📘
+### Boas vindas ao meu perfil 🥖
 
 Meu nome é Gabryel Nyckolas
 
@@ -9,4 +9,4 @@ Meu nome é Gabryel Nyckolas
 
 gabryel.nyckolas.silva@escola.pr.gov.br
 
-![gif do coringa]([https://tenor.com/search/joker-gifs](https://media.tenor.com/AmhR2MJTwdIAAAAi/joker-joaquin-phoenix.gif)
+![](https://media.tenor.com/RaIKPdg468cAAAAC/capybara-gangsta.gif)
