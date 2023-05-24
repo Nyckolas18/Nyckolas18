@@ -7,8 +7,8 @@
 -  Espaço para por os games
 
 
-- 🪧Você pode entrar em contato comigo pelo 🪧
-- [Email escolar](gabryel.nyckolas.silva@escola.pr.gov.br)
+- 🪧Você pode entrar em contato comigo pelo 🪧 
 
+![](https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white) [Email](gabryel.nyckolas.silva@escola.pr.gov.br)
 
-![](https://media.tenor.com/RaIKPdg468cAAAAC/capybara-gangsta.gif)
+![](https://tenor.com/pt-BR/view/timon-pumba-lion-king-dance-dancing-gif-10170067)
