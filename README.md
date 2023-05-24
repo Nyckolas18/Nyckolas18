@@ -1,4 +1,4 @@
-**🥖Meus manos!!! 🥖
+🥖 Meus manos!!! 🥖
 
 - Me chamo Gabryel
 - Me falta amadurecer
